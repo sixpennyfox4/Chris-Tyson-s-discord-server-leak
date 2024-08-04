@@ -1,1 +1,1 @@
-This leak of Chris Tyson's discord channel.
+This is leak of Chris Tyson's discord channel.
